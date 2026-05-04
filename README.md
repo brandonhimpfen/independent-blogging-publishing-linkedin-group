@@ -1,1 +1,1 @@
-# independent-blogging-publishing-linkedin-group
+# Independent Blogging & Publishing LinkedIn Group
